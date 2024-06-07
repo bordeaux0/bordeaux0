@@ -2,7 +2,7 @@
  ★ **Bordeaux** ★
 ## I'm lost in my dreams 🌊
 - 🎐 Hey, I’m Maria :)
-- 🎮 I’m interested in read books and play games ☝️🤓
+- 🎮 I’m interested in F1, read books and play games ☝️🤓
 - 🌼 I’m currently learning ✨nothing✨ 
 - 💞️ I’m looking to collaborate with myself
 - 🐣 How to reach me: be nice and funny with me 💕
